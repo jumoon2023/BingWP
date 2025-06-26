@@ -1,5 +1,7 @@
 ## Bing Wallpaper
 
+2025-06-27 | [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg)
+
 2025-06-26 | [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-GB7257455536_UHD.jpg)
 
 2025-06-25 | [Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)](https://cn.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg)
